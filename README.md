@@ -1,4 +1,4 @@
-# Aymane-s-fan-page
+# Aymane's fan page
 
 This is my first webpage about my dear friend (and idol) Aymane aymanos 
 
